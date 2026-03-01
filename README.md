@@ -1,4 +1,4 @@
-# -triune-prism-official-
+
 Initial brand sovereignty declaration and timestamp - March 1, 2026
 三一棱镜 | THE TRIUNE PRISM
 全球品牌主权与数字存证声明 Global Brand Sovereignty & Digital Timestamp Declaration
